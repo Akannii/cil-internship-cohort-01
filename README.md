@@ -1,8 +1,8 @@
-# cil-cohort-1-
-CIL Cohort 1 - Class Repo
-
-If you have questions please send them to 
-
-tomilayo.beckley@cecureintel.com
-
-nurudeen.abdulazeez@cecureintel.com
+ - JH98KDY
+ - IUS34JUS	
+ - AHD24KSH
+ - WERH234K
+ - VFd84lfj
+ - VFd32fes
+ - BC93wre
+ - Swq23k
